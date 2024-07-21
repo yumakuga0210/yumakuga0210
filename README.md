@@ -1,5 +1,9 @@
-- 👋 Hi, I’m @yumakuga0210 frome TW
-- 👀 I’m interested in ACGN Anime Comic Games Novel
+- 嗨 我是空閒 是個宅男來自台灣
+- 我會中文、英文及一點點日文
+- 我對動漫、遊戲很有興趣
+-  Hi, I’m @yumakuga0210 I'm also an Otaku from TW
+-  I speak Chinese English and litte Japanese
+-  I’m interested in ACGN Anime Comic Games Novel
 
 
 <!---
